@@ -1,1 +1,1 @@
-yaaaa perdole kurwa
+yaaaa perdole kurwa sobaka ebaka
